@@ -1,4 +1,4 @@
-# 
+# Ultimato geckoterminal sniper bot fluxo de trabalho para Mac OS | Gratuito geckoterminal sniper bot fluxo de trabalho para PC Windows. Com rasteamento de preços e suporte multi-chain — otimizado para máximo desempeño en cada plataforma.
 
 
 
